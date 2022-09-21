@@ -1,13 +1,9 @@
-aweerahwetaweadhaeawgefae
+Chinese Name: 柯保羅
 
-fwefabawebfafad
+English Name: Kenneth Paul C. Beniga
 
-fabfefa
+Nickname: KP
 
-wefbwaeffwgafdgntu
+Github: https://github.com/Kenth963
 
-eafgbartseryaagsasfe nn
-
-fawewfafbdf
-
-awdfeawefasdfbadafsbe
+很高兴认识你
